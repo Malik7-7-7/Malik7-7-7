@@ -4,7 +4,7 @@
 - 💞️ I’m
 - 📫 How to reach me: MalikAjose07072007@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: Gamer??
+- ⚡ Fun fact: 
 
 <!---
 Malik7-7-7/Malik7-7-7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
