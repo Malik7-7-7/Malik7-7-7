@@ -2,7 +2,7 @@
 - 👀 I’m interested in rediscovering about space 
 - 🌱 I’m currently learning electrical Electronics Engineering 
 - 💞️ I’m
-- 📫 How to reach me: MalikAjose07072007@gmail.com
+- 📫 How to reach me: MalikAjose777@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: 
 
